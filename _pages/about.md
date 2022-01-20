@@ -15,12 +15,15 @@ From the very first year of my college life, I'm fascinated by Deep learning and
 
 To know more about me, check out the links on the top of this webpage.
 
-If you are looking for potential candidates to join your research team or startup, feel free to reach me through my email [Aayushsingla1729@gmail.com](mailto:Aayushsingla1729@gmail.com) or via other social media platforms, links to which can be found in the left pane of the webpage.
+If you are looking for potential candidates to join your research team or startup, feel free to reach me through my email [Aayushsingla1729@gmail.com](mailto:aayushsingla1729@gmail.com) or via other social media platforms, links to which can be found in the left pane of the webpage.
 
 
 Current News
 ------
+
 **[July, 2021]** Joined University of Amsterdam as a research fellow for my 6-months long bachelor thesis under the supervision of Dr. Rajat Mani Thomas. <br>
+**[July, 2021]** Joined University of Amsterdam as a research fellow for my 6-months long bachelor thesis under the supervision of Dr. Rajat Mani Thomas. <br>
+**[April, 2020]** My team at Abilitare competed with won University of Florida Big Idea Competition and won a prize money of _$25000_. [Read more here...] (https://news.warrington.ufl.edu/students/brainforce-wins-25000-in-2021-big-idea-competition/) . <br>
 **[December, 2020]** Joined Abilitare, an early-stage startup founded by the students of University of Florida and became one of the first members to join their team. <br>
 
 
